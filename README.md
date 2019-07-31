@@ -1,0 +1,2 @@
+# Lafricaine
+GitHub Pages
